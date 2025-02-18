@@ -1,1 +1,1 @@
-# Tas-Kag-t-Makas
+# Tas-Kagıt-Makas
