@@ -1,1 +1,1 @@
-# Tas-Kagıt-Makas
+rock-paper-scissors
